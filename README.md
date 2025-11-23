@@ -53,5 +53,14 @@ By eliminating the nighttime gravitational pull, human rehabilitation and resili
 The solution to incomplete adaptation to gravity lies not in future biological evolution, but in a technological intervention that allows the body to rest perfectly.
 
 Doctor NYX
-   
+
+<img width="250" height="149" alt="GRAVITY  AI GEN SLEEP 250 PX" src="https://github.com/user-attachments/assets/fc895171-b2b5-4ba9-abe8-609bac41b907" />
+<img width="561" height="264" alt="NYX POSTURES" src="https://github.com/user-attachments/assets/5b840d82-5339-4e72-9b24-152882c19d49" />
+<img width="1324" height="753" alt="SETED 6 MILLONES SL 25" src="https://github.com/user-attachments/assets/72eecfb4-a42a-408a-9dd4-0bebb44bed0f" />
+<img width="300" height="423" alt="Z G P NASA" src="https://github.com/user-attachments/assets/2ef4ad19-2d92-49c8-8d27-affd55f2940d" />
+<img width="339" height="459" alt="ZGP TABLET NASA" src="https://github.com/user-attachments/assets/05ff768a-9406-49a2-be29-ceb239b49188" />
+<img width="339" height="229" alt="WOM COL LAB" src="https://github.com/user-attachments/assets/eed0fc4a-ef7b-48ea-bd29-13e5a89f4c9b" />
+
+
+
 
